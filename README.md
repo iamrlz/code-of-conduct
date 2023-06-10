@@ -70,6 +70,6 @@ Our community is committed to fostering a respectful, inclusive, and collaborati
 
 By participating in The Community Alliance, you agree to abide by this code of conduct. The community leaders reserve the right to take appropriate action, including warning, temporary suspension, or permanent expulsion from the community, in response to violations of this code of conduct.
 
-#  If you feel unsafe, unwelcome, or uncomfortable 
+#  Need Help With a Violation or Incident? 
 For any concers feel free to reach out me  If you feel unsafe, unwelcome, or uncomfortable within the community alliance 
 - Email @ muhammadziaunnabi.janjua@studentambassadors.com
